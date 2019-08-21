@@ -2,4 +2,4 @@
 
 ## It is a fun project
 
-### here how you can help
+### here's how you can help
